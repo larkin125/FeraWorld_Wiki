@@ -1,0 +1,1 @@
+An [[Aşağı]] kingdom in [[Vadras]] whom believe they are true [[Üstün]].  This is a false ideology.

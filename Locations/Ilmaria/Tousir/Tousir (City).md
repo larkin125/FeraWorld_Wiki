@@ -1,0 +1,1 @@
+The Regional Capital of the [[Principality of Tousir]], of the same name.

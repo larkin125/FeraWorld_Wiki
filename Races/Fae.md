@@ -1,0 +1,1 @@
+The Fae are a winged humanoid race from the continent of [[Pawhye]] - [[The New World.]] Solitary creatures, the Fae remain hidden to most of the world, only the Dragonkin of the [[Kalewen Dynasty]] traded with the human like creatures in peace.

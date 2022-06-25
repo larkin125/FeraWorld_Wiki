@@ -1,0 +1,1 @@
+The [[Taş Görmak]] were seeing stones created by [[Kräl Şah]] [[Yilmazok Akar]], usually placed upon a [[Görüş Kulesi]], a vast tower that amplified and focused their powers.

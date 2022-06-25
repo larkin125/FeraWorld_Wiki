@@ -1,0 +1,2 @@
+The Aşağı are the descendants of the [[Üstün]], the "Modern" Elf after the fall of the [[Üstün]]. They are weaker than their ancestors and lack the natural link to the Aether. Usually lithe and with a slight point to their ears. 
+A notable Aşağı is that of the [[Pavis Dominion]], whom believe they are their ancient [[Üstün]] ancestors and rule their empire as the old [[Üstün]] Empire before them never fell. 

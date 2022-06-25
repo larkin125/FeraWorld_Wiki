@@ -1,0 +1,3 @@
+The Dwarves were one of the first races to settle Fera, long before [[Humans]] had evolved to their current state as Fera's dominant race. Along with the ancient [[Üstün]], the Dwarves settled many areas of the world and it was not until the Rise of the [[Üstün]] that these races descended and colonised many of the mountains and dug deep into [[Fera]], creating vast cities to hide away from their enemies. 
+Many Dwarven cities still remain underground or carved into mountains but the Dwarves are not solely live underground, vast cities on the surface and even high up on mountain tops show the Dwarven capability to carve stone. 
+One such Kingdom, the [[Maktashish Kingdom]] of [[Vadras]], is one such sprawling land ruled by the Dwarves. 

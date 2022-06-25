@@ -1,0 +1,1 @@
+A vast tower that amplified and focused the power of a [[Taş Görmak]] that was placed upon it, most towers and [[Taş Görmak]] were created by [[Kräl Şah]] [[Yilmazok Akar]], 

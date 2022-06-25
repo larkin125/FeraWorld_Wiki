@@ -1,0 +1,1 @@
+Owner of [The Ring-Dang-Do](The%20Ring-Dang-Do.md) House of Pleasure and Entertainment in [Adestein](Adestein.md) 

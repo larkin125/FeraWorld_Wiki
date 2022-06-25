@@ -1,0 +1,7 @@
+Long ago, during the the reign of the evil [[Kräl Şah]] [[Yilmazok Akar]], the [[Üstün]] followers of a ruler that would later be known as "The [[Night Mother]]" to her people, fled to the vast underground network of tunnels of Fera. 
+
+These [[Üstün]] would evolve into the Yaralti. A race geneticlly engoineered over the thousands of years to live and survive in their new home. Through the centuries the Yaralti created a system of government with a female led society, in honour of their savior. Geneticly the Yaralti are similar to the [[Üstün]] but have diverted to their underground home. Their eyes have adapted and through certain breeding cycles some have developed horns. 
+
+This is due to the society in which they created. City States of the Yaralti live in isolated bubbles with various trade networks. Repoduction is closely monitored and any defects in the genome is quickly removed. To be "[[Arizali]]" or damaged is a death sentence. Very few survive childhood if any genetic defects are found.
+
+Travel to the surface is outlawed, the humans above are to live in blissful ignorance of the Yaralti to safeguard their people. Yet some are exiled from their home and find their way to the surface in hope for a new life.
