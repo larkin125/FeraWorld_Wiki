@@ -68,4 +68,4 @@ Year:
 ## Equipment
 
 # Images
-![[__ruby_rose_rwby_drawn_by_kuon_kwonchanji__sample-2bb7a1cfe749a0a6abad455e6590b2ad.jpg]]
+![[1.jpg]]
